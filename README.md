@@ -3,8 +3,7 @@
 
 
 
-
-![image](https://github.com/cuteoo2/CryptoClustering/assets/122655370/ec5c0039-7904-4dfb-a5dc-d838b4c91db5)
+![image](https://github.com/cuteoo2/CryptoClustering/assets/122655370/1fb0c0a6-6c67-4179-8975-7bde3e0c7622)
 
 
 
